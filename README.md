@@ -1,0 +1,1 @@
+I am Kaveri Battula.I am looking for Entry level position to associate with an organization that premises a creative career on Embedded C.So, as to amplifies my knowledge and my collaboration as a part of the team that excels technology,in work towards the growth of the organization. 
